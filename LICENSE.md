@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with advanced Windscribe Extension | P2P-support + server-locations, the #1 extension. Includes P2P-support and server-locations for a safer and
 
 
 
